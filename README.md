@@ -8,11 +8,4 @@ $$ 2^n + z = y $$
 eabvlopnvl;'d;
 sld kblmab' 
 dablka'kb
-dbld blmbl;s
-vb
-mdbfk'ab
-db
-kewavahjvnkb
-
-fbsdkmbsg
-be
+d
