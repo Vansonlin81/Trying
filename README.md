@@ -3,16 +3,21 @@ Try_nothing
 
 Here is the different 
 eop]bvl;vkmvpd
-$$ 2^n + z = y $$
 
-eabvlopnvl;'d;
-sld kblmab' 
-dablka'kb
-dbld blmbl;s
-vb
-mdbfk'ab
-db
-kewavahjvnkb
 
-fbsdkmbsg
-be
+fvlalv
+avflvmz
+
+al ,
+a
+vflla
+,m
+
+f,l
+fab
+as
+'sa,blas
+bl
+asvas
+lb
+ablsfbl;m
